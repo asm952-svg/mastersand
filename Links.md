@@ -2,6 +2,26 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-04-29 20:12 IR
+- 🎬 [My Trump Phone is Coming.mp4](https://github.com/asm952-svg/mastersand/raw/main/dl/My%20Trump%20Phone%20is%20Coming.mp4) `37.2MB`
+
+- 🎬 [Nmplol DEFENDS ExtraEmily, Calls Nick Crying ｜ Morgpie Responds to Backlash.mp4](https://github.com/asm952-svg/mastersand/raw/main/dl/Nmplol%20DEFENDS%20ExtraEmily%2C%20Calls%20Nick%20Crying%20%EF%BD%9C%20Morgpie%20Responds%20to%20Backlash.mp4) `19.1MB`
+
+- 🗜️ [Solo is Miserable.mp4.zip](https://github.com/asm952-svg/mastersand/raw/main/dl/Solo%20is%20Miserable.mp4.zip) `75.3MB`
+
+- 🗜️ [Solo is Miserable.mp4.z01](https://github.com/asm952-svg/mastersand/raw/main/dl/Solo%20is%20Miserable.mp4.z01) `95.0MB`
+
+- 🗜️ [Solo is Miserable.mp4.zip](https://github.com/asm952-svg/mastersand/raw/main/dl/Solo%20is%20Miserable.mp4.zip) `75.3MB`
+
+- 🎬 [The PS5's Price went Up so I Built a PC that Beats it.mp4](https://github.com/asm952-svg/mastersand/raw/main/dl/The%20PS5%27s%20Price%20went%20Up%20so%20I%20Built%20a%20PC%20that%20Beats%20it.mp4) `54.5MB`
+
+- 🎬 [The Steam Controller is Here.mp4](https://github.com/asm952-svg/mastersand/raw/main/dl/The%20Steam%20Controller%20is%20Here.mp4) `41.9MB`
+
+- 🎬 [Was I Wrong About the Macbook Neo？.mp4](https://github.com/asm952-svg/mastersand/raw/main/dl/Was%20I%20Wrong%20About%20the%20Macbook%20Neo%EF%BC%9F.mp4) `39.9MB`
+
+---
+
+
 ### 📅 2026-04-29 17:04 IR
 - 🎬 [The ＂Black Petite＂ Streamer MrBeast Hates (Rakai).mp4](https://github.com/asm952-svg/mastersand/raw/main/dl/The%20%EF%BC%82Black%20Petite%EF%BC%82%20Streamer%20MrBeast%20Hates%20%28Rakai%29.mp4) `40.4MB`
 
